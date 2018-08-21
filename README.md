@@ -22,6 +22,8 @@ on website.(www.kitgenie.com)
 
 ## Impetus N’ Concepts ’17
 SocioHackathon Poster
+Sustainability Quiz Poster
 
 ## PISB's Credenz
 B-Plan and Wall Street Poster
+Xodia Connect 4
