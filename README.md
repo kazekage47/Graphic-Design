@@ -1,5 +1,5 @@
 # Graphic-Design
-### Portfolio-
+### Portfolio
 
 ## Kirti Agarwal PRET N COUTURE
 Freelance Project
